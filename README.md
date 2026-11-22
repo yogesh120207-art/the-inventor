@@ -1,2 +1,2 @@
 # the-inventor
-seeing the world in different 
+seeing the world in different .
